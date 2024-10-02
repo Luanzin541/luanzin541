@@ -5,5 +5,5 @@ meu nome e luan
 sou aluno do arthur ciryllo freire sorocaba sp
 tenho 16anos 
 
-![](https://tenor.com/pt-BR/view/yes-daumen-hoch-prima-thumbs-up-allligator-gif-15354784)
+![](yes-daumen-hoch](https://github.com/user-attachments/assets/902898fc-c8f8-4e12-9fc0-bbdaec5a8592)
 
